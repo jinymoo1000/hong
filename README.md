@@ -10,3 +10,8 @@ something is familiar
 like a freind ive always known
 im arriving
 and i feels like im home
+#i have always been so fortress
+normal rules did not apply
+is this the day
+are you the way
+i finally find out whyyyyy
