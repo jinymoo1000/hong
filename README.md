@@ -1,4 +1,4 @@
-# hong
+#hong
 2020.01.01
 2020.01.02 faraway
 #i can hear you
@@ -15,3 +15,8 @@ normal rules did not apply
 is this the day
 are you the way
 i finally find out whyyyyy
+#show yourself
+im dieing to meet you
+show yourself its your turn
+are you the one ive been waiting for
+all of my life
